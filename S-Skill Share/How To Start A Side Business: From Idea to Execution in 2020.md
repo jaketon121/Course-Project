@@ -4,9 +4,9 @@ How To Start A Side Business: From Idea to Execution in 2020
 https://www.skillshare.com/classes/How-To-Start-A-Side-Business-From-Idea-to-Execution-in-2020/1947642429
 
 
-1 figer out what biz you should start ? 
+ - figer out what biz you should start ? 
 
- what do you interting ? 
+ - what do you interting ? 
  
  - Start doing with fun . Start doing for fun.
  
@@ -16,3 +16,11 @@ https://www.skillshare.com/classes/How-To-Start-A-Side-Business-From-Idea-to-Exe
 # [Uncovering the distinctions of success in biz]
 
 - Fial fast !   
+
+- Take mess action !!! Because you don't know what work what don't work ,so fail fast to get feedback !!!   So then now you know ,what work what did't work !!!
+
+- You need to take action to uncover the distinctions . Simple right !!!???
+
+- Get suck !!! Get fail fast!!! This is the only way you know what work what won't work !!!
+
+- The only way to no fail less, Is to fail faster .
