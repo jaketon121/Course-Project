@@ -24,3 +24,15 @@ https://www.skillshare.com/classes/How-To-Start-A-Side-Business-From-Idea-to-Exe
 - Get suck !!! Get fail fast!!! This is the only way you know what work what won't work !!!
 
 - The only way to no fail less, Is to fail faster .
+
+# [Conquering your fear of failure]
+
+- Gain eduction you can't buy . Its somethings that earn.
+
+- People they go fail fast , they know what they gaining in there . they know the vision ,they know the big pitcure .
+
+
+- Test the market place before you into it . That's why I go many app to post .  Before you invest money to market , do test the market place .
+
+
+
