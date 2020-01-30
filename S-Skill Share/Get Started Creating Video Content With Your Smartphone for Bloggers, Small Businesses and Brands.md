@@ -14,4 +14,4 @@
 
 - Record sagment don't recored everythings in . 
 
-- Don't afiad . Do it more and more and more to expend it ...
+- Don't afiad . Do it more and more and more to expend it ... Be eazy on yourself starting and then your get conforable after and after . 
