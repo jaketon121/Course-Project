@@ -8,3 +8,5 @@
 
 - Product review .
 
+- Planing - Outline video post .
+
