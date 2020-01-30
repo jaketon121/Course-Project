@@ -10,3 +10,6 @@
 
 - Planing - Outline video post .
 
+- Cover most things in to 5 min . 
+
+
