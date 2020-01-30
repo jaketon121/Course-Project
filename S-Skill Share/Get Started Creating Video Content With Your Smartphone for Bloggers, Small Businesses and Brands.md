@@ -12,4 +12,5 @@
 
 - Cover most things in to 5 min . 
 
+- Record sagment don't recored everythings in . 
 
