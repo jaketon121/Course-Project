@@ -14,3 +14,4 @@
 
 - Record sagment don't recored everythings in . 
 
+- Don't afiad . Do it more and more and more to expend it ...
