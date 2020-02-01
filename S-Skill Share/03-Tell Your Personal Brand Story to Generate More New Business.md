@@ -40,3 +40,19 @@ parable - a short allegorical story designed to illustrate or teach some truth, 
 
 - More Authentic - More attractive - Enhance your pensonal brand .
 
+
+# Attractive Characters Are Polarizing 
+
+- Polarizing point of view 
+
+- Build A Loyal Following 
+
+- Going Out On My Own 
+
+- Share their opinions on hard matters  
+
+- stick to their guns 
+
+- take a stand for what they believe in  
+
+- change fair-weather fans into diehard fans .
