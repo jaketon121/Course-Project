@@ -14,7 +14,7 @@
 
 - 3 Tips For Creating Your Backstory 
 
-- 1.Identify eventsin your past that shape how you help clients .  
+- 1. Identify eventsin your past that shape how you help clients .  
 - 2. Ensure your background is relevant to your service . 
 - 3. Cut as much no-vital backstory as you can .
 
