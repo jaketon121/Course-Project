@@ -1,6 +1,8 @@
 
 # How to Clear Your Mind & Organize Your Life
 
+- https://www.skillshare.com/classes/How-to-Clear-Your-Mind-Organize-Your-Life/26225889
+
 # Clearning your mental clutter
 
 - Organize your desk ... house ...
