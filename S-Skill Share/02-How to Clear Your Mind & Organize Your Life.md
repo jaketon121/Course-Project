@@ -19,3 +19,4 @@ Getting Closure - List of all the areas in your life where you don't have comple
 
 - Make a list of all the areas in your life where you don't have completion.
 
+- Press pause now ,go make your list and then come back when you're done. 
