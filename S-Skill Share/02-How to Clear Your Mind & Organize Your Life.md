@@ -9,3 +9,13 @@
 
 - Out side it in phone or computer or on paper ...
 
+- Ask : Can I let this one go ?
+
+- Choose to let that one go and then notice the emotional experience when you consciously choose to let it go .
+
+# Getting Closure 
+
+Getting Closure - List of all the areas in your life where you don't have completion.
+
+- Make a list of all the areas in your life where you don't have completion.
+
