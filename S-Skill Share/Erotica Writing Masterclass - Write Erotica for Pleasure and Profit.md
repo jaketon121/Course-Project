@@ -17,3 +17,18 @@
 
 - Give what they want to end it. 
 
+# Erotica Genres 
+
+- BDSM 
+
+- Horror
+- Fantasy
+- LGBT
+- humorous
+- Mystery 
+- Urban
+- Science Fiction
+- Thrillers
+- Sensual 
+- Suspense
+
