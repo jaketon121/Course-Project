@@ -12,3 +12,8 @@
 - Conflict ,Conflict ,conflict ! Falling in love is never eazy !
 
 - Ahh... Satisfaction!
+
+# EVERYONE LONE A HAPPY ENDING 
+
+- Give what they want to end it. 
+
