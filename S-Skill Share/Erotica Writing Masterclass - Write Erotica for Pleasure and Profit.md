@@ -1,6 +1,8 @@
 
 # Erotica Writing Masterclass - Write Erotica for Pleasure and Profit
 
+- https://www.skillshare.com/user/alignyourlight
+
 - Four Elements of adult romance 
 
 - Two characters that the audience relates to on a personal level . The kind of relationship that readers can root for .
